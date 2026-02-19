@@ -1,4 +1,4 @@
-<meta name="google-site-verification" content="iDYVOys_4TEhw03C7DR9MnW1j3snW5z1DuhvNIvxz-M" /> # Camila Hayward
+# Camila Hayward
 ### Senior Operations Leader | Strategic Business Integration & Operational Grit
 
 **Driving high-stakes business results through systems architecture and human agency.**
