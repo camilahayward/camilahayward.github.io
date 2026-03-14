@@ -2,7 +2,7 @@
 
 ### Turning Values Into Behavior — Across Teams, Brands, and Cultures
 
-**L&D | Operations | Culture | EN | ES | PT | U.S. & LATAM**
+L&D | Operations | Culture | EN | ES | PT | U.S. & LATAM
 
 A trilingual leader who builds the cultures, systems, and teams that turn strategy and values into real behavior — across retail, manufacturing, hospitality, and education.
 
